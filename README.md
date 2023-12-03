@@ -19,6 +19,6 @@
 
 ### 🌐 Connect with Me
 
-- LinkedIn: [LinkedIn](https://www.linkedin.com/in/gaya3ramesh/)
+- LinkedIn: [[LinkedIn]([https://www.linkedin.com/in/abinayar21/)]
 
 Excited about the potential of data to drive impactful decisions. Open to new opportunities and collaborations. Let's connect and explore the data world together! 🚀
